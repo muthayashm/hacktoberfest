@@ -1,3 +1,9 @@
+#### Name: [Yash Mutha](https://github.com/muthayashm)
+
+- Place: Nashik, Maharashtra, India
+- Bio: Enthusiastic Engineer, Keen learner !
+- GitHub: [muthayashm](https://github.com/muthayashm)
+- 
 #### Name: [ADITYA SHARMA](https://github.com/adityasharma270103)
 
 - Place: Varanasi, Uttar Pradesh, India
